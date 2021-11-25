@@ -1,0 +1,1 @@
+# Apredendo-a-n-o-deixar-o-git-aberto
